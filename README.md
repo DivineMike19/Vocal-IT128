@@ -1,4 +1,0 @@
-Mike Emil Vocal
-ITS152L-FOPM01
-BSIT
-
